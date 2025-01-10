@@ -78,7 +78,7 @@ Have ideas for improvement? Found a bug? Open an issue or submit a pull request.
 
 Stay updated and inspired:  
 - YouTube Shorts: [FunCodeChronicals](#)  
-- Instagram Reels: [Akku_miss](#)  
+- Instagram Reels: [shwet.a_5](#)  
 
 Let’s learn, build, and contribute together! 🌟  
 
